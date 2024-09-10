@@ -2,10 +2,10 @@ A portfolio is an essential tool for showcasing your skills, experience, and acc
 
 
 
-Demonstrate Skills and Expertise
-Personal Branding
-Career Advancement
-Flexibility
-progress Tracking 
-Attracts Clients and Opportunities
+Demonstrate Skills and Expertise,
+Personal Branding,
+Career Advancement,
+Flexibility,
+progress Tracking,
+Attracts Clients and Opportunities,
 are the Advantages of Portfolio 
